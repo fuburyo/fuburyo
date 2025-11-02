@@ -14,7 +14,8 @@ I LOVE TO TALK AND PLAY GAMES !! feel free to join me on <br/>
 any platform or chase me down on pt if im online i Do not care.
 </p>
 <p align="center">
-more info about my interests + links on my <a href="https://fuburyo.straw.page">strawpage</a> and <a href="https://scyphozoa.carrd.co">carrd</a>!
+more info about my interests + links on my <a href="https://fuburyo.straw.page">strawpage</a> and <a href="https://scyphozoa.carrd.co">carrd</a>! <br/>
+<a href="https://letterboxd.com/fuburyo">the movies i watch</a> and the <a href="https://www.last.fm/user/t4ken4ka">the music i like</a>
 <p align="center">
 <br/>
 <br/>
