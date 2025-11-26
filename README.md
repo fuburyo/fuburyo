@@ -22,13 +22,7 @@ BYI • general DNI criteria • proship dni
 </p>
 <p align="center">
 i curate my online experience and hide liberally
-<p align="center">
-<p align="center">
-i hide venting/heavy topics/constant complaining + shitting on characters for no reason
-</p>
-<p align="center">
-im an adult. i dont care about nothingburger online discourse, particularly queer infighting
-</p>
-<p align="center">
+<br/>
+<br/>
 be kind. We will have fun and joy.
 </p>
