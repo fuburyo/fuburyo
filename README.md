@@ -14,3 +14,10 @@
 </p>
   
 <p align="center"><img src="https://scyphozoa.carrd.co/assets/images/image01.png?v=11a00c9d" width="500" title="fat bastard"></p>
+
+<p align="center"> 
+general iwc to hoyoverse + tiktok fandoms
+  </br> 
+  </br>
+dont care what u tickle ur pickle to in ur free time but im not inclined to talk to </br> u if ur loudly obsessed with incest/lolisho sorry if that makes me chronically online
+</p>
