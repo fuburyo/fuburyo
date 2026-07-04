@@ -16,5 +16,5 @@
 <p align="center"><img src="https://scyphozoa.carrd.co/assets/images/image01.png?v=11a00c9d" width="500" title="fat bastard"></p>
 
 <p align="center"> 
-general iwc to hoyoverse + tiktok fandoms
+general iwc to hoyoverse, hazbin, dandys world + other tiktok fandoms
 </p>
