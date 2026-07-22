@@ -6,9 +6,7 @@
   <a href="https://fuburyo.straw.page">strawpage</a> 
     🧪 
       <a href="https://scyphozoa.carrd.co">carrd</a> 
-        🪲 
-          <a href="https://fuburyo.atabook.org">atabook</a> 
-  
+        
 <p align="center"> 
   feel free to copy/screenshot/take inspo from any of my ponies! 
 </p>
